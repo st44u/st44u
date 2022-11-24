@@ -1,4 +1,4 @@
-- Hi, I’m @st44u
+- Hi, I’m Sahaj Arora.
 - I’m interested in fintech projects and looking to work for one.
 - contact for collaboration on web3 and smart contract projects.  
 - contact @ saprojects24@gmail.com
